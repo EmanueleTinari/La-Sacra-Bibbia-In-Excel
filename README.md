@@ -1,0 +1,1 @@
+Archivio temporaneo per reset
